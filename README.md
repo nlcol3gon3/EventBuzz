@@ -33,7 +33,7 @@ Contributions are welcome! If you would like to contribute, please fork the repo
 
 For any inquiries or support, feel free to reach out:
 
-Email: gonenicole22@gmail.com
+Email: nicole.gone.work@gmail.com
 
 LinkedIn: Nicole Gone
 
